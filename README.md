@@ -1,0 +1,1 @@
+# Ortalama-S-cakl-k-ve-Ya-Miktar-Grafikleri-Olu-umu
